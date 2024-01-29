@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mrmidosami@yahoo.com**
 
-- ⚡ Fun fact **You can breathe through your nose, with your tongue out**
+- ⚡ Fun fact **You can't breathe through your nose, with your tongue out**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
