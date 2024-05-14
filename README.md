@@ -7,9 +7,9 @@
 
 - 🌱 I’m currently learning **Web Development**
 
-- 📫 How to reach me **mrmidosami@yahoo.com**
+- 📫 How to reach me **muhammadsamielbarawy@gmail.com
+**
 
-- ⚡ Fun fact **You can't breathe through your nose, with your tongue out**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
